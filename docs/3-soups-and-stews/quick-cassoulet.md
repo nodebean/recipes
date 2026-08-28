@@ -9,12 +9,12 @@
 * salt and pepper to taste  
 * 2 cups chicken broth, plus more if needed  
 * 2 (15 ounce) cans cannellini beans, drained and rinsed  
-* 1 ½ teaspoons minced fresh rosemary  
-* 1 ½ teaspoons minced fresh thyme  
+* 1 1/2 teaspoons minced fresh rosemary  
+* 1 1/2 teaspoons minced fresh thyme  
 * cayenne pepper to taste  
-* ¼ cup melted butter  
+* 1/4 cup melted butter  
 * 1 cup bread crumbs  
-* ½ cup finely grated Parmigiano-Reggiano
+* 1/2 cup finely grated Parmigiano-Reggiano
 
 ## Directions:
 

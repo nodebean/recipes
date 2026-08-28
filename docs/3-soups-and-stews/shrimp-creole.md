@@ -15,8 +15,8 @@
 * 2 Tablespoons chopped parsley  
 * 2 Tablespoon sugar  
 * 1-3/4 cup hot water  
-* ½ tsp salt / ¼ tsp pepper to taste  
-* ¼ tsp Louisiana Hot Sauce
+* 1/2 tsp salt / 1/4 tsp pepper to taste  
+* 1/4 tsp Louisiana Hot Sauce
 
 ## Directions:
 

@@ -12,7 +12,7 @@
 * 1 cup celery, chopped  
 * 1-2 cloves garlic, minced  
 * 1 bay leaf  
-* ½  tsp thyme  
+* 1/2  tsp thyme  
 * 8 oz red potato diced  
 * 8 oz frozen cut green beans  
 * 8 oz frozen peas  

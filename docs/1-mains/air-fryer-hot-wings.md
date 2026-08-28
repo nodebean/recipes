@@ -14,9 +14,9 @@
   * 1 tsp paprika  
   * 2 tbsp canola oil  
 * Sauce  
-  * ⅔ c franks red hot  
-  * ½ c butter  
-  * ½ tsp worcestershire sauce
+  * 2/3 c franks red hot  
+  * 1/2 c butter  
+  * 1/2 tsp worcestershire sauce
 
 ## Directions:
 

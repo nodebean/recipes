@@ -5,12 +5,12 @@
 * 1 lb spicy Italian sausage, casings removed and rolled into small balls  
 * 1 lb green or brown lentils  
 * 1 leek, chopped  
-* ½ large yellow onion, diced  
+* 1/2 large yellow onion, diced  
 * 2-3 carrots, chopped  
 * 2 tsp minced garlic  
 * 1 tsp thyme  
 * 6oz spinach  
-* ½ tsp pepper  
+* 1/2 tsp pepper  
 * 1 tbsp olive oil  
 * 7 cups chicken broth   
 * Chives

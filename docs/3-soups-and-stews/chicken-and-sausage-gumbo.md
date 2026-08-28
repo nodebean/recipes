@@ -3,7 +3,7 @@
 ## Ingredients:
 
 * 48oz chicken stock (homemade is best)  
-* ¾ cup canola oil  
+* 3/4 cup canola oil  
 * 1 cup flour  
 * 2 lbs cooked Chicken or 1 cooked deboned hen  
 * 1 lb hillshire farm beef smoked sausage  

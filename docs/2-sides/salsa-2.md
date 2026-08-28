@@ -7,7 +7,7 @@
 * 2 serranos seeded and chopped (you can add more if you like it more spicy)  
 * 2 gloves fresh garlic \- crushed  
 * Half of a white onion, chopped into smaller pieces  
-* Cilantro chopped to taste or \~¼ cup
+* Cilantro chopped to taste or \~1/4 cup
 
 ## Directions:
 

@@ -13,14 +13,14 @@
 *  2 cups marinara sauce  
 *  1 cup beef broth  
 *  1 tablespoon balsamic vinegar  
-* ¼ teaspoon crushed red pepper flakes
+* 1/4 teaspoon crushed red pepper flakes
 
 ### Peppers:
 
 *  1 pound lean ground beef  
-*  ¼ pound hot Italian pork sausage, casing removed  
+*  1/4 pound hot Italian pork sausage, casing removed  
 *  1 (10 ounce) can diced tomatoes  
-*  ¼ cup chopped fresh Italian parsley  
+*  1/4 cup chopped fresh Italian parsley  
 *  4 cloves garlic, minced  
 *  2 teaspoons salt  
 *  1 teaspoon freshly ground black pepper  

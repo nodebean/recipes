@@ -2,14 +2,14 @@
 
 ## Ingredients:
 
-* ½ cup olive oil  
+* 1/2 cup olive oil  
 * 4 cloves garlic, finely minced  
 * 1 (8 ounce) loaf French bread baguette, cut into 1/2-inch cubes  
-* ¾ cup finely grated Parmigiano-Reggiano cheese, divided  
-* ½ teaspoon Italian seasoning  
-* ½ teaspoon paprika  
-* ½ teaspoon freshly ground black pepper  
-* ½ teaspoon salt  
+* 3/4 cup finely grated Parmigiano-Reggiano cheese, divided  
+* 1/2 teaspoon Italian seasoning  
+* 1/2 teaspoon paprika  
+* 1/2 teaspoon freshly ground black pepper  
+* 1/2 teaspoon salt  
 * 1 pinch cayenne pepper
 
 ## Directions:

@@ -3,17 +3,17 @@
 ## Ingredients:
 
 * 2 tablespoons olive oil  
-* ¾ pound fresh white mushrooms, sliced  
-* ¼ pound fresh shiitake mushrooms, stemmed and sliced  
+* 3/4 pound fresh white mushrooms, sliced  
+* 1/4 pound fresh shiitake mushrooms, stemmed and sliced  
 * salt and ground black pepper to taste  
 * 2 cloves garlic, minced  
 * 2 fluid ounces sherry  
 * 1 cup chicken stock  
 * 1 cup heavy whipping cream  
 * 8 ounces fettuccine pasta  
-* 1 ½ teaspoons chopped fresh thyme  
-* 1 ½ teaspoons chopped fresh chives  
-* 1 ½ teaspoons chopped fresh tarragon  
+* 1 1/2 teaspoons chopped fresh thyme  
+* 1 1/2 teaspoons chopped fresh chives  
+* 1 1/2 teaspoons chopped fresh tarragon  
 * 9 tablespoons freshly shredded Parmigiano-Reggiano cheese, divided
 
 ## Directions:

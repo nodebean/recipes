@@ -2,7 +2,7 @@
 
 ## Bulk Ingredients:
 
-* ½ gallon frozen sliced carrots  
+* 1/2 gallon frozen sliced carrots  
 * 1 quart onion cut in 1 inch chunks  
 * 1 large jar/can of jalapenos with juice  
 * 1 cup white vinegar  

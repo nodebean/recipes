@@ -5,8 +5,8 @@
 * 1 cup basmati rice  
 * 2 cups hot water  
 * 2 Knorr Chicken Tomato Bouillon cubes or 2 tablespoons of the granular type  
-* ½ tsp garlic powder  
-* ½ tsp onion powder  
+* 1/2 tsp garlic powder  
+* 1/2 tsp onion powder  
 * 1 serrano or jalapeno
 
 ## Directions:

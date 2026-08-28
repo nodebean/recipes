@@ -9,9 +9,9 @@
 * 1 cup chopped carrots   
 * 1 cup chopped celery   
 * 2 tbsp minced garlic (about 5 cloves)  
-* 2 ¼ cups low-sodium chicken broth   
-* 1 ½ tbsp fresh lemon juice  
-* 1 ⅓ cups long grain white rice   
+* 2 1/4 cups low-sodium chicken broth   
+* 1 1/2 tbsp fresh lemon juice  
+* 1 1/3 cups long grain white rice   
 * 2 tsp Italian seasoning   
 * 1 tsp paprika   
 * 3 tbsp chopped parsley 

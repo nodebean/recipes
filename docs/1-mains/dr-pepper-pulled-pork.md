@@ -6,8 +6,8 @@
 * 1 12oz can of Dr Pepper  
 * 1 teaspoon honey  
 * 1 tablespoon balsamic vinegar  
-* ½ teaspoon salt  
-* ½ teaspoon freshly-ground black pepper  
+* 1/2 teaspoon salt  
+* 1/2 teaspoon freshly-ground black pepper  
 * 2 cups BBQ Sauce
 
 ## Directions

@@ -4,7 +4,7 @@
 
 * 1 can tuna in water  
 * 1 hard boiled egg, yolk and white separated  
-* ¼ onion finely diced  
+* 1/4 onion finely diced  
 * 3 tbs Mayonnaise  
 * 1 tsp Mustard  
 * 1/4c chopped Pickles  

@@ -2,7 +2,7 @@
 
 ## Ingredients:
 
-* 1 ½ lbs chicken breasts or thighs  
+* 1 1/2 lbs chicken breasts or thighs  
 * 1 pound thin spaghetti, broken into 2-inch pieces  
 * 2 1/2 cups shredded sharp Cheddar  
 * 1 diced green bell pepper  

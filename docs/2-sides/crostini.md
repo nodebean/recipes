@@ -10,4 +10,4 @@
 1. Slice baguette at 45 degrees about 1/4in thick  
 2. Arrange flat on a sheet pan  
 3. Brush on olive oil  
-4. Bake on top ⅓ of oven @ 450 for 7-10 minutes until brown
+4. Bake on top 1/3 of oven @ 450 for 7-10 minutes until brown

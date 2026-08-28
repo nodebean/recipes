@@ -1,0 +1,28 @@
+site_name: My Recipes
+site_url: https://cook.beanteam.org/
+site_description: Simple, straightforward recipes in a functional style.
+site_author: nodebean
+
+repo_url: https://github.com/nodebean/recipes
+repo_name: nodebean/recipes
+edit_uri: edit/main/docs/
+
+docs_dir: docs
+
+theme:
+  name: terminal
+  palette: light
+  features:
+    - navigation.side.indexes
+
+plugins:
+  - search
+
+markdown_extensions:
+  - toc:
+      permalink: true
+  - admonition
+  - tables
+  - attr_list
+  - def_list
+  - md_in_html

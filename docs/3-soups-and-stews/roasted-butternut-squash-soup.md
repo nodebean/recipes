@@ -15,7 +15,7 @@
 * 2 tablespoons maple syrup  
 * 2 tablespoons cider vinegar  
 * 1 pinch cayenne pepper  
-* ½ cup creme fraiche  
+* 1/2 cup creme fraiche  
 * 1 tablespoon chopped fresh chives
 
 ### Sage Brown Butter:

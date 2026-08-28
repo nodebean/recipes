@@ -6,12 +6,12 @@
 * 4 eggs  
 * 6 tbs milk  
 * 1 tbs parm/reg cheese  
-* ½ cup flour  
+* 1/2 cup flour  
 * 1 1/2 teaspoons dried parsley flakes or 1 tablespoon fresh chopped parsley  
 * 2c white wine  
 * 2 tsp low sodium chicken base (better than bouillon)  
 * 1 cup vegetable oil  
-* Juice from ½ a small lemon, about 1-2 tbs
+* Juice from 1/2 a small lemon, about 1-2 tbs
 
 ## Directions:
 
