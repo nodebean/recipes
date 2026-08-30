@@ -1,4 +1,4 @@
-# Chicken Pot Pie  
+# Basic Chicken Pot Pie  
 
 ## Ingredients:
 
