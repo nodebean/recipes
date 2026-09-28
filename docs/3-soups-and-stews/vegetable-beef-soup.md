@@ -23,9 +23,8 @@
 ## Directions:
 
 1. Brown ground beef, drain and set aside.  
-2. Sweat onions, carrots, and celery with a fat pinch of salt.  
+2. Sweat onions, carrots, and celery with a bit of salt.  
 3. Add garlic and cook about 30s until fragrant  
-4. Add tomatoes and tomato soup, simmer for \~10m  
-5. Add beef broth to deglaze.  Add the beef and everything else.  
-6. Simmer 2h  
-7. Serve with cornbread, rolls, crackers, or some sort of bread.
+4. Add the broth, bay leaf, thyme, tomatoes, tomato soup, and frozen vegetables
+5. Simmer 2h  
+6. Serve with cornbread, rolls, crackers, or some sort of bread.
